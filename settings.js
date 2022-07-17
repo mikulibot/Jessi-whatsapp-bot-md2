@@ -4,7 +4,7 @@
 //pls give credit
 //no credit? i will take action immediately
 //© 2022 White Shadow Bot Inc. Jessi Bot MD
-//Thank you to Mr.Chabby,
+//Thank you to Rimuru,
 //════════════════════════════//
 
 
